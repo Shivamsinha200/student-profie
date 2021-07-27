@@ -1,2 +1,2 @@
 # student-profie
-https://itsshivamsinha.000webhostapp.com/
+it's my profile
